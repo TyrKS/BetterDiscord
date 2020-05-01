@@ -1,1 +1,1 @@
-Hide your servers for more privacy!
+I will upload here all my projects about BetterDiscord!
